@@ -8,7 +8,7 @@ I'm interested in coding
 Git and github 
 
 #current projects
-Github 
+Git and github 
 
 #How to reach me
 email :nicoleagnes909@gmail.com 
